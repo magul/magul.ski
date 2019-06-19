@@ -1,0 +1,1 @@
+# magul.ski website
